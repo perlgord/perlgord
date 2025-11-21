@@ -6,6 +6,6 @@
   [ata](https://godheadsilo.atabook.org/)
 
 
-<p align="center">under 14 dni please . . . i 'm 15 ok . . . reworking (′ェ`)</p>  
+<p align="center">under 14 dni please . . . i 'm 15 ok . . . view on light mode maybe (′ェ`)</p>  
 
 ![](https://64.media.tumblr.com/ef60e4395af2e56b1b7307f7ef598c18/ac7ca9e806546f3b-d5/s2048x3072/9b491403865e142dcd7f0fe1d6a0a6cdaf0e74ae.pnj)
