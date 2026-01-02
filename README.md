@@ -13,8 +13,7 @@
 <p align="center">
  <a href="https://tuileriies.straw.page">straw</a> 
   <a href="https://godheadsilo.atabook.org/">ata</a> 
- <a href="https://rentry.co/bonapartte">rentry</a>
- <a href="https://klownspiracy.straw.page">straw 2</a>
+ <a href="https://pronouns.cc/@tuileriies">prns</a>
 </p>
 
 
