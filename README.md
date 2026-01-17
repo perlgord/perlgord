@@ -5,7 +5,7 @@
 </p>
  
 <p align="center">
-<img width="460" height="500" src="https://64.media.tumblr.com/7ad0899745d594e6d2c141c605ca7552/08fae4d8b01ef4f3-80/s2048x3072/d17c078f7a54b39bfd0cc4b1acd12a5c9ca1bf01.pnj">
+<img width="600" height="500" src="https://64.media.tumblr.com/7ad0899745d594e6d2c141c605ca7552/08fae4d8b01ef4f3-80/s2048x3072/d17c078f7a54b39bfd0cc4b1acd12a5c9ca1bf01.pnj">
 </p>
 
 ##  
@@ -18,9 +18,11 @@
 </p>
 
 
-<p align="center">under 14 dni please . . . i 'm 15 ok . . . view on light mode maybe (′ェ`)</p>  
+<p align="center">under 14 dni. im 15 (07/16/10) (′ェ`)</p>  
 
-<p align="center">formerly blackmesaa . . i like half life & napoleon ok</p>
+<p align="center">formerly blackmesaa | my main interests consist of half life, napoleonic era, && moree</p>
+
+<p align="center">c+h and w2i, im offtab often</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
