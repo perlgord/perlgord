@@ -1,8 +1,6 @@
 ![](https://64.media.tumblr.com/216bbbf16a8a65c27746039d7aabba45/1e3f52aa3fa01c75-da/s2048x3072/052cec8dadfcb3afbf35391ceaa099c33811d3ef.pnj)
 
-<p align="center">
-<a href="https://komarev.com/ghpvc/?username=apertvre&label=friends&color=a3a597"</a>
-</p>
+
  
 <p align="center">
 <img width="600" height="500" src="https://64.media.tumblr.com/3ce93dc94c8df28ad6e2043591855a40/a7e79669b41b373b-71/s1280x1920/ede194554720fa12727a9b704e8465aea3b119e6.pnj">
@@ -11,10 +9,10 @@
 ##  
 
 <p align="center">
- <a href="https://tuileriies.straw.page">straw</a> 
+ <a href="https://potatoslament.straw.page">straw</a> 
   <a href="https://godheadsilo.atabook.org/">ata</a> 
  <a href="https://pronouns.cc/@tuileriies">prns</a>
- <a href="https://talleyrand.straw.page">straw2</a>
+ <a href="https://tuileriies.straw.page">straw2</a>
 </p>
 
 
