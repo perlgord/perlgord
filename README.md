@@ -22,6 +22,8 @@
 
 <p align="center">c+h and w2i, im offtab often</p>
 
+<p align="center">umm i like french history and valve games kay</p>
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=natemoo-re&show_offline=true&background_color=dddacf&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
