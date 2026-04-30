@@ -16,7 +16,7 @@
 </p>
 
 
-<p align="center">under 14 dni. im 15 (07/16/10) (′ェ`)</p>  
+<p align="center">under 14 dni. im 15 -> 16 (07/16/10) (′ェ`)</p>  
 
 <p align="center">════════════════════</p>
 
