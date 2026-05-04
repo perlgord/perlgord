@@ -19,7 +19,7 @@
 
 <p align="center">════════════════════</p>
 
-<p align="center">c+h and w2i, im offtab often</p>
+<p align="center">c+h and w2i, im offtab often. smtimes i go nv lol i dont really like talking</p>
 
 <p align="center">umm i like french history and valve games kay</p>
 
