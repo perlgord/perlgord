@@ -10,7 +10,6 @@
 
 <p align="center">
  <a href="https://potatoslament.straw.page">straw</a> 
-  <a href="https://godheadsilo.atabook.org/">ata</a> 
  <a href="https://prns.cc/yheuq">prns</a>
  <a href="https://tuileriies.straw.page">straw2</a>
 </p>
