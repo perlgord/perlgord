@@ -1,9 +1,9 @@
-![](https://64.media.tumblr.com/7481f4a81fc0fa4acd9b8e4122262b08/efa59677884e5c34-ea/s1280x1920/ed4b9c34744d6a90e57f772c2cd0f60ea9d0b026.pnj)
+![](https://64.media.tumblr.com/b6a759f9f16f910cb66ec63f7847a739/d430551e45703fd0-a4/s2048x3072/3e2c3425a6eb4ffa85e14c961d4a0e1a18599141.pnj)
 
 
  
 <p align="center">
-<img width="600" height="500" src="https://64.media.tumblr.com/d2cfd2fb002f85f91df12819a54844ab/4e3b4ec476c32bed-e1/s640x960/625dc8ffde95766b00e9db8f2ea7ca8748346680.pnj">
+<img width="400" height="300" src="https://64.media.tumblr.com/9bdaa738c98c05b473b60306d19efd0b/294f21b99e6bed60-53/s1280x1920/43e341436a02f6c91869aaad84c32f7d7d70945d.pnj">
 </p>
 
 ##  
@@ -15,11 +15,12 @@
 </p>
 
 
-<p align="center">under 14 dni. im 15 -> 16 (07/16/10) (′ェ`)</p>  
+<p align="center">dni -14 ⟢ 15 -> 16 ( july )</p>  
 
-<p align="center">════════════════════</p>
+<p align="center">˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.</p>
 
-<p align="center">c+h and w2i, im offtab often. smtimes i go nv lol i dont really like talking</p>
+<p align="center">c+h and w2i ⋮ im offtab often ⋮ smtimes i go nv lol i dont really like talking</p>
 
 <p align="center">umm i like french history and valve games kay</p>
 
@@ -30,8 +31,10 @@
 </p>
  
 
+<p align="center">
+<img width="200" height="200" src="https://64.media.tumblr.com/4cf221a420858973b8df743a7451f54f/294f21b99e6bed60-fd/s1280x1920/0dac17ceb3218b1ed37f4c2c7d79f15c47c3081e.pnj">
+</p>
 
-
-
+![](https://64.media.tumblr.com/b6a759f9f16f910cb66ec63f7847a739/d430551e45703fd0-a4/s2048x3072/3e2c3425a6eb4ffa85e14c961d4a0e1a18599141.pnj)
  
-![](https://64.media.tumblr.com/301ffb4915c40fd973e10c61477d287b/9f40624fb93ae11e-0f/s2048x3072/95f6d2be25b0ddb693bf0c4bf853a3bec34763bd.gifv)
+
