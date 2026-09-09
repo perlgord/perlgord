@@ -17,7 +17,7 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prnscc](https://prns.cc/yheuq)⠀⠀[straw](https://talleyrand.straw.page)⠀⠀ [ata](https://godheadsilo.atabook.org/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prnscc](https://prns.cc/yheuq)⠀⠀[straw](https://talleyrand.straw.page)⠀⠀ [ata](https://talleyrand.atabook.org/)
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9zxx0pmsegu9seluh3kb8hgxg&cover_image=true&theme=natemoo-re&show_offline=true&background_color=3e2d2d&interchange=false&profanity=false&hide_remaster=false&bar_color=8e2929&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
